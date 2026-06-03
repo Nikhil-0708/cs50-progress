@@ -62,4 +62,4 @@ Starting Week 3: Algorithms
 ---
 
 ## Connect With Me
-LinkedIn: (your linkedin link later)
+LinkedIn: (https://www.linkedin.com/in/mangalamadhunikhil)
